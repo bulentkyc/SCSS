@@ -1,2 +1,2 @@
 
-    You can fınd Partials & Nested for others keep following me :)
+    You can find Partials & Nested for others keep following me :)
